@@ -1,1 +1,1 @@
-**#Képek a közelmúltból**
+# képek a közelmúltból
